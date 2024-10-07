@@ -1,0 +1,1 @@
+Brain fog isn't an official medical diagnosis; rather, it's a colloquial term for a range of significant, persistent neurocognitive impairments that cause such symptoms as sluggish thinking, difficulty processing information, forgetfulness, and an inability to focus, pay attention, or concentrate.
